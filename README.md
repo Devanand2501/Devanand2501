@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **devanandkangane@gmail.com**
 
-- ⚡ Fun fact **Data analysts are like detectives and data scientists are the modern-day alchemists. of the data world and**
+- ⚡ Fun fact **Data analysts are like detectives and data scientists are the modern-day alchemists of the data world and**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
